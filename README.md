@@ -1,1 +1,1 @@
-# Ayrik-Sistemler-incleri-Olasilik
+# Ayrik-Sistemler-Icin-Ileri-Olasilik
